@@ -1,1 +1,1 @@
-gomigomi
+gomi
